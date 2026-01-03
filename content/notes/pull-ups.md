@@ -2,6 +2,8 @@
 title: Pull-ups
 ---
 
+[[notes/fitness]]
+
 I have been trying to get better at pull-ups since personal fitness class in highschool. It's like all exercise-related activities - you pray once again each year that you'll hit your goal of 10 confident pull-ups. Not 3 sets of 10, but just a one time show of 10.
 
 The worst year was 2021, when it was the peak of COVID life and working out was nonexistent. My chest was pulling my shoulders in as I reached for my mouse and keyboard hoping that would change my life. One day I woke up with a knot under my left scapula (shoulder blade). It was by far the worst pain I'd felt - half my back was swollen. I got up, walked 3 steps, then quickly retreated to the bed as I realized I was fainting from the pain shooting up my spine. I'd probably massaged my back too much, and the weak spot sprouted a knot. All that reaching for my machine resulted in imbalanced muscles.
